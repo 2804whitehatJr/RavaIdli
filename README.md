@@ -1,2 +1,2 @@
 # RavaIdli
-This is the super 
+##This is the super chatak twist. It is typical indian dish
