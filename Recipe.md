@@ -10,7 +10,7 @@
 
 
 
-### 3)  Now add fried rava , chopped sharp green chilies and curry leaves to the crackled mustard.  this mixture needs to be sautéed for a minute.
+### 3)  Now add fried rava , chopped sharp green chilies and curry leaves to the crackled mustard.You can even add additional vegitable if required.This mixture needs to be sautéed for a minute.
 
 <img src="https://i2.wp.com/www.vegrecipesofindia.com/wp-content/uploads/2013/11/rava-idli09.jpg" style="zoom:67%;" />
 
