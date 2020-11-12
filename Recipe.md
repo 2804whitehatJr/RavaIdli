@@ -1,6 +1,6 @@
 ## Steps to prepare Rava Idli are as follows: 
 
-### 1) Fry the Rava on pan until it is fried golden.<img src="https://i2.wp.com/www.vegrecipesofindia.com/wp-content/uploads/2013/11/rava-idli10.jpg" style="zoom: 67%;" />
+### 1) Fry the Rava on pan until it is golden.<img src="https://i2.wp.com/www.vegrecipesofindia.com/wp-content/uploads/2013/11/rava-idli10.jpg" style="zoom: 67%;" />
 
 
 
@@ -40,7 +40,7 @@
 
 
 
-### 8) The idlis are ready👩🏻🍽!!! Now you can serve them with coconut chutney and potato sago to enhance their flavor.
+### 8) The idlis are ready👩🏻🍽 😋!!! Now you can serve them with coconut chutney and potato sagoo to enhance their flavour.
 
 <img src="https://i.pinimg.com/originals/c6/d1/32/c6d13261dc5f4fdfdf9bbdba8b504da5.jpg" style="zoom:50%;" />
 
