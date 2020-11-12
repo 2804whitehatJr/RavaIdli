@@ -12,7 +12,10 @@
 
 5. ## Broken Cashews![](https://www.driedfruitforafrica.co.za/wp-content/uploads/2020/04/Cashew-Nuts-Salted-300x300.png)
 
-6. ## Crackled Mustard![mustard](http://finenaturalhairandfaith.com/wp-content/uploads/2015/04/mustardseed.png)
+
+6. ## Crackled Mustard![mustard](https://s.yimg.com/fz/api/res/1.2/Ps73Asu_6Rf.vswQqmEuzA--~C/YXBwaWQ9c3JjaGRkO2ZpPWZpdDtoPTM2MDtxPTgwO3c9NDYw/https://s.yimg.com/zb/imgv1/3f2e73cb-b69c-3912-b19d-b232af7953ad/t_500x300)
+
+
 
 7. ## soda<img src="https://officialpsds.com/imageview/7k/lw/7klwyz_large.png?1521316562" style="zoom: 50%;" />
 
