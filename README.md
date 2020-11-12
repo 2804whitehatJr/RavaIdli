@@ -1,6 +1,6 @@
 # <u>*Indian Taste Rava Idli*</u>
 
-****![Rava Idly 3](C:\Users\sanjana\Desktop\whitehats .jr\pictures\Rava Idly 3.jpg)
+****![Rava Idly 3](https://apollosugar.com/wp-content/uploads/2018/12/Rava-Idli.jpg)
 
 
 
