@@ -1,6 +1,6 @@
 # ***Ingredients*** required for making this dish are:
 
-1. ## A large Bowl Of Curd![curd](C:\Users\sanjana\Desktop\whitehats .jr\pictures\curd.jpg)
+1. ## A large Bowl Of Curd![curd](https://i.pinimg.com/originals/fa/dd/cf/faddcfe8cf213be08ad4c0a7838789a9.png)
 
 2. ## Rava (fried golden)![Rava](C:\Users\sanjana\Desktop\whitehats .jr\pictures\Rava.jpg)
 
